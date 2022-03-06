@@ -1,5 +1,5 @@
 - Hi, I’m @kalivva
-- I’m interested in Mathematics
+- I’m interested in Mathematics and debating
 - I’m currently learning Python 🌱
 
 <!---

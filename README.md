@@ -1,4 +1,4 @@
-- Hi, i’m @kalivva
+- hiii, i’m @kalivva
 - maths, politics and debating crossover
 - currently learning 🌱
 
